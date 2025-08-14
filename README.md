@@ -1,0 +1,1 @@
+# basit-al-veri-list
